@@ -1,1 +1,1 @@
-Mary had a little lamb.
+And washed the spider out!
