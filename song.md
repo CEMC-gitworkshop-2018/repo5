@@ -1,1 +1,1 @@
-And washed the spider out!
+Down came the rain and washed the spider out.
