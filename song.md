@@ -1,1 +1,3 @@
-Down came the rain (line 3)
+Down came the rain
+Climbed up the water spout.
+And washed the spider out!
